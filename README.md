@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @heyykid
+- 👋 Hi, I’m @heyydeeph
 - 👀 I’m interested in learning new tech's and innovations
 - 🌱 I’m currently learning bachelors in computer application
 - 💞️ I’m looking to collaborate on .....
